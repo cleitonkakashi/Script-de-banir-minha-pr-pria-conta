@@ -1,1 +1,0 @@
-# Script-de-banir-minha-pr-pria-conta
